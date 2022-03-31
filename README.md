@@ -16,12 +16,15 @@ Here are some ideas to get you started:
 -->
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=DejaVu+Sans+Mono&size=30&color=695ACF&lines=WELCOME+TO+MY+REPO+)](https://git.io/typing-svg)
 
-Hello Dude🙋🏻‍♀️Welcome to my Repo ￼
 
 ## 📢Introduce myself - 🙂 I'm Cyber Dark 
+
 🚩 I'm a beginner in this field  
+
 📍 From THIRUVALLA,PATHANAMTHITTA,Kerala,🇮🇳 
+
 🏫 High School at ST.BEHANANS,PATHANAMTHITTA 
+
 🏫 Now I'm studying 10TH STANDARD in ST.BEHANANS,VENNIKULAM 
 
 
