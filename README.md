@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
 📍 From THIRUVALLA,PATHANAMTHITTA,Kerala,🇮🇳 
 
-🏫 High School at ST.BEHANANS,PATHANAMTHITTA 
+🏫 High School at THSS,PATHANAMTHITTA 
 
 🏫 Now I'm studying 10TH STANDARD in ST.BEHANANS,VENNIKULAM 
 
